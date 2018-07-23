@@ -1,0 +1,1 @@
+# Gary-D.-Schmidt-personal-collection
